@@ -1,0 +1,1 @@
+![C Certificate](/Duke%20C.png)
